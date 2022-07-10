@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AaronCronnelly;
+- 👀 I’m interested in anime/manga, computers, JDM and Japan;
+- 🌱 I’m currently learning Japanse in my spare time and I am studing Software Development in ATU Galway;
+- ⏰ I have three year left in uni before I graduate;
+- ✈️ I plane on moving to Kyoto Japan after I graduate, but hope to travel a bit in the next few years first;
